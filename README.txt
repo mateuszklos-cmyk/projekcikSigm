@@ -10,7 +10,7 @@ Dupa miłuje i dupa zdradza źródło: https://poezja.org/wz/Aleksander_Fredro/3
 Dupa ludzkości raju pozbawiła
 Dupa a nie jabłko Adama skusiła
 Dupa nieraz królów dawnych mianowała
-Dupa też ich detronizowała
+Dupa też ich detronizowałasadafsasf
 
 Dupa bogaci, dupa rujnuje
 Dupa losami świata kieruje
